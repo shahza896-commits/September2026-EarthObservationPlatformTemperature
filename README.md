@@ -1,0 +1,1 @@
+# September2026-EarthObservationPlatformTemperature
